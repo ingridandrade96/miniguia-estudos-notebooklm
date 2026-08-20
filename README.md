@@ -1,1 +1,1 @@
-# miniguia-estudos-notebooklm
+Juros Simples e Compostos no Dia a Dia
